@@ -1,4 +1,4 @@
-# 
+# VIP deribit trading bot scripts for Mac OS | Ultimato deribit trading bot scripts for PC Windows. Featuring estratégia de reversão à média and análise de momento — optimized for maximum performance.
 
 
 
